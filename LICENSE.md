@@ -1,4 +1,4 @@
-
+Enhance your Hotspot Shield experience with Hotspot Shield smart Extension: multi-protocol-support & smart-DNS, the #1 extension. Includes multi-protocol-support and smart-DNS for
 
 
 
